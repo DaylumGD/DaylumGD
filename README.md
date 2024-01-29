@@ -9,7 +9,9 @@ creator my love for programming came from Geometry Dash triggers and how much po
 Socials
 --------
 Youtube: https://www.youtube.com/@DaylumGD
+
 Twitch: https://www.twitch.tv/DaylumGD
+
 GD Account: https://gdbrowser/u/Daylum
 
 Website
