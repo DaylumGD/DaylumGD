@@ -14,6 +14,6 @@ Twitch: https://www.twitch.tv/DaylumGD
 
 GD Account: https://gdbrowser/u/Daylum
 
-Website
+Other stuff
 --------
 In the works...
