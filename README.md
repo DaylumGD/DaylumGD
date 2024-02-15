@@ -19,3 +19,5 @@ Discord Server: https://discord.gg/xkGuJpyha8
 Other stuff
 --------
 Website: in the works...
+
+Donations: https://donate.stripe.com/3cscMQ8pB7ruc6IdQW
