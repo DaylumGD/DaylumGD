@@ -8,7 +8,7 @@ creator my love for programming came from Geometry Dash triggers and how much po
 
 Socials
 --------
-Youtube: https://www.youtube.com/@MtjGD
+Youtube: https://www.youtube.com/@mtjgd
 
 Twitch: https://www.twitch.tv/MtjGMD
 
